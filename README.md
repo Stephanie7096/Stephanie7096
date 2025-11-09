@@ -66,4 +66,4 @@ When I’m not studying or setting up labs, I enjoy:
 ## 💬 Let’s Connect
 
 I love meeting people passionate about **cybersecurity and networking**.  
-📫 Reach me here or connect with me on [LinkedIn](#) — always open to learning and collaboration!
+📫 Reach me here or connect with me on [www.linkedin.com/in/stephanie-tchulap](#) — always open to learning and collaboration!
